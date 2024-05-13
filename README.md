@@ -5,6 +5,7 @@
 - 📫 You can find me = IG  : @sabasabitakdamana
                         X   : @DyeXzee
 - ⚡ Hobby: Playing Music, Traveling, and Gaming
+- 👻 Fun Fact : Don't like to eat seafood or fish, but shrimp its okay and i like it 😄😄😄😄
 
 <!---
 akdamana7/akdamana7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
